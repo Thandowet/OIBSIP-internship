@@ -1,0 +1,1 @@
+My name is Noluthando Nomatshizolo, I have been seslected for an internship at Oasis infobytes. These are the projects that I created as a beginner, I hope you find them interesting, pleasae feel free to leave any comments or suggestions.
